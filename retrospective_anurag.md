@@ -29,3 +29,14 @@ We had completed questions together.
 
 #### Describe the questions or deliverables completed by each team member:
 We focused to completing questions one by one and both were sitting on the same system.
+Warm Up 1 -Manali
+Warm Up 2 – Manali
+Warm Up 3 – Anurag
+Warm Up 4 -Anurag
+Analysis 1 - Together
+Analysis 2 – Together
+Analysis 3 – Together
+Analysis 4 – Together
+Analysis 5 – Together
+Analysis 6 – Together
+Analysis 7 - Together
